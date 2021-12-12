@@ -1,4 +1,4 @@
 # PsychEngineWeeks69Fanmade
 Enjoy it, my first project.
 read the do NOT readme.txt file before go in the game :P
-ANyway, now ENJOY!
+Anyway, now ENJOY!
